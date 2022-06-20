@@ -1,4 +1,4 @@
-## Oi! Eu sou a Nathallye Tavares. 👋😊
+## Oi! Eu sou a Nathallye Bacelar. 👋😊
 
 
 <div align="center">
