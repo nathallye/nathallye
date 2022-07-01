@@ -1,4 +1,4 @@
-## Oi! Eu sou a Nathallye Bacelar. 👋😊
+## Hello World! I'm Nathallye Bacelar. 👋😊
 
 
 <div align="center">
